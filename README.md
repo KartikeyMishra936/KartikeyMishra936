@@ -2,7 +2,7 @@
 - 👀 I’m interested in exploxing new things
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on inventing new things
-- 📫 How to reach me via github
+- 📫 How to reach me via kartikeymishra9306@gmail.com
 - 😄 Pronouns: him
 - ⚡ Fun fact: I'm introvert 
 
